@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nans.moll@ynov.com**
 
-- ⚡ Fun fact **i am a really good support on OW2**
+- ⚡ Fun fact **i am CODER**
 
 <p align="left">
 </p>
